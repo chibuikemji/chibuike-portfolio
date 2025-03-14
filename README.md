@@ -13,4 +13,4 @@ I'm a passionate Software Engineer with a focus on Frontend development. I have 
 
 I'm always eager to learn and explore new technologies. 
 
-**Connect with me:**
+**Connect with me:reachchibuike@gmail.com
